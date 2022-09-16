@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Umesh2790
-- 👀 I’m interested in ... Talent Market
-- 🌱 I’m currently learning ... Talent Managment 
+- 👀 I’m interested in ... High skill Talent Market
+- 🌱 I’m currently learning ... Talent Management 
 - 💞️ I’m looking to collaborate on ... Hiring 
 - 📫 How to reach me ... umesh.omee90@gmail.com
 
